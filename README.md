@@ -1,2 +1,0 @@
-# proyectou.github.io
-Proyecto
